@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Liantsoa-Najaina.
+- 👋 Hi, I’m @Najaina.
 - 👀 I’m interested in a lot of stuff but especially video games and books
 - 🌱 I’m currently a computer science student.
 - 😄 Pronouns: he/him.
